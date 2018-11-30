@@ -1,0 +1,1 @@
+This is my git class of November 2018 by Jowi
